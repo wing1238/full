@@ -1,2 +1,2 @@
 # full
-this is my site &lt;a href="https://cracksdesk.com/">Here&lt;/a> you will find the best for you
+An example iOS application constructed utilizing the Perfect Quick engineering. Clean Quick is Uncle Sway's Spotless Engineering applied to iOS and Macintosh projects. For more information click <a href="https://cracksdesk.com/">Here</a>
